@@ -1,0 +1,1 @@
+Thinkspeak - Wordometer - Covid19
